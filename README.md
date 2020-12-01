@@ -1,1 +1,3 @@
-# Project-26
+let's learn about a Funfetti Cake
+
+Funfetti cake is a type of cake that has rainbow colored sprinkles baked into the batter. It is also called confetti cake because when baked, the rainbow sprinkles melt into dots of bright color that resemble confetti. Typically the batter is either white or yellow to allow for a better visual effect. The cake generally consists of flour, butter, baking powder, salt, sugar, vegetable oil, eggs, vanilla extract, milk, and rainbow colored sprinkles. The cake normally has a frosting made of butter, salt, powdered sugar, vanilla extract, and milk.
